@@ -1,0 +1,3 @@
+## k̾o̾d̾e̾c̾u̾r̾a̾n̾g̾
+### A place for amateur developers to collaborate together...
+Join us if you share the same interests and passions..!
